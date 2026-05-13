@@ -23,4 +23,6 @@ anyone can interact as long as said person is not being too overly flirty with m
 
 werewolf cookie fictive ,, fictive doubls can int as long as you're not sharing the same yume ^_^ im a nonsharing bspice yume !!
 
+i follow cool people or just anyone i think is cool ,, PLEASE tell me if im following someone who has bad intentions
+
 <img width="140" src="https://komarev.com/ghpvc/?username=your-eldfire">
