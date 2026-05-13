@@ -21,6 +21,6 @@ i love crk, crob, good omens, criminal minds, will trent, etc!!
 
 anyone can interact as long as said person is not being too overly flirty with me!! ^_^
 
-
+werewolf cookie fictive ,, fictive doubls can int as long as you're not sharing the same yume ^_^ im a nonsharing bspice yume !!
 
 <img width="140" src="https://komarev.com/ghpvc/?username=your-eldfire">
