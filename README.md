@@ -17,6 +17,10 @@ raaaaggghhhh
 
 i love crk, crob, good omens, criminal minds, will trent, etc!!
 
+16 ,, i dont have any dni just the absic criteria://// aaaaaaa
+
+anyone can interact as long as said person is not being too overly flirty with me!! ^_^
+
 
 
 <img width="140" src="https://komarev.com/ghpvc/?username=your-eldfire">
