@@ -25,4 +25,4 @@ werewolf cookie fictive ,, fictive doubls can int as long as youre not ryde to o
 
 i follow cool people or just anyone i think is cool ,, PLEASE tell me if im following someone who has bad intentions
 
-<img width="140" src="https://komarev.com/ghpvc/?username=your-eldfire">
+![](https://komarev.com/ghpvc/?username=darkendspirit&color=6879D0)
