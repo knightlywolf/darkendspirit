@@ -1,13 +1,13 @@
 wlmao
 
 ok hi
-so im fae, spirit, or wolf ;-; either work!!!!
+so im fae, spirit, or wolfe/wolf ;-; either work!!!!
 
 usually in a newer made skin ,, but will still be in other skins -_-
 
 everyone knows fae is better than everyone
 
-i will shorten a lot of characters names (i.e; elder faeroe = fae, fire spirit = spirit, werewolf = wolf, so on)
+i will shorten a lot of characters names (i.e; elder faeroe = fae, fire spirit = spirit, werewolf = wolfe/wolf, so on)
 
 i will NOT be anywhere else but the crk area UNLESS im with friends or on my island :PPPP
 
