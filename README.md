@@ -3,7 +3,7 @@ wlmao
 ok hi
 so im fae, spirit, or wolf ;-; either work!!!!
 
-usually in a wold/cacao skin but will be in other skins as well!!!!
+usually in a newer made skin ,, but will still be in other skins -_-
 
 everyone knows fae is better than everyone
 
