@@ -25,4 +25,6 @@ werewolf cookie fictive ,, fictive doubls can int as long as youre not ryde to o
 
 i follow cool people or just anyone i think is cool ,, PLEASE tell me if im following someone who has bad intentions
 
+i do make multi accounts on github to correspond with my skins, EXCEPT tis account! this ones my main -_-
+
 ![](https://komarev.com/ghpvc/?username=darkendspirit&color=6879D0)
