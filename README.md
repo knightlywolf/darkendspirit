@@ -1,7 +1,7 @@
 wlmao
 
 ok hi
-so im fae, spirit, or wolfe/wolf ;-; either work!!!!
+so im merce/merc, spirit, or wolfe/wolf ;-; either work!!!!
 
 usually in a newer made skin ,, but will still be in other skins -_-
 
@@ -21,7 +21,7 @@ i love crk, crob, good omens, criminal minds, will trent, etc!!
 
 anyone can interact as long as said person is not being too overly flirty with me!! ^_^
 
-werewolf cookie fictive ,, fictive doubls can int as long as youre not ryde to other doubles :/ owwww owwwwwwwwwwww
+werewolf & mercurial cookie fictive ,, fictive doubls can int as long as youre not ryde to other doubles :/ owwww owwwwwwwwwwww
 
 i follow cool people or just anyone i think is cool ,, PLEASE tell me if im following someone who has bad intentions
 
